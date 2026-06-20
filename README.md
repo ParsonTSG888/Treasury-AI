@@ -105,7 +105,7 @@
 ## 📬 联系方式
 
 - GitHub：[ParsonTSG888](https://github.com/ParsonTSG888)
-- 公众号：Parson资金研习社
+- 微信：ParsonTSG888（同号）
 
 ---
 
