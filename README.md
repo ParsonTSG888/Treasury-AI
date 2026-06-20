@@ -106,6 +106,7 @@
 
 - GitHub：[ParsonTSG888](https://github.com/ParsonTSG888)
 - 微信：ParsonTSG888（同号）
+- 小红书/微信公众号：Parson资金研习社
 
 ---
 
